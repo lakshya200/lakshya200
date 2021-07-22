@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lakshya200
+- 👋 Hi I'm lakshya aditya
 - 👀 I’m interested in coding, playing the guitar and draw some sketches.
 - 🌱 I’m currently learning coding in whitehat jr
 - 📫 you can reach me by htis mail of mine maddela.lakshya@gmail.com
